@@ -5,3 +5,5 @@ final codigo resuelto
 ![Screenshot_20231111_075957](https://github.com/XavierR007/FINALXAVIERREYES/assets/126616105/3bcdeb6c-97e7-4a32-8a6f-58c7a77a2d5a)
 ![Screenshot_20231111_080014](https://github.com/XavierR007/FINALXAVIERREYES/assets/126616105/73c2ffe3-b667-4cbd-b19c-cd6b3902cfe3)
 ![Screenshot_20231111_075954](https://github.com/XavierR007/FINALXAVIERREYES/assets/126616105/1a5045a9-9f26-4cb9-b823-1ea5a3566a91)
+
+reporte clockify  (https://drive.google.com/file/d/1rJN8qrd6rJEm4_fC0MNvYz_ZnAsGrQS0/view?usp=sharing)
